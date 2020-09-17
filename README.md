@@ -1,0 +1,1 @@
+# fujimya.github.io
